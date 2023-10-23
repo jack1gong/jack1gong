@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jack1gong
 - 👀 I’m interested in earn money
-- 🌱 I’m currently learning forex trader,program
+- 🌱 I’m currently learning forex trade,program
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me at 479quantum@gmail.com
 
